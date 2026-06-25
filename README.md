@@ -1,0 +1,1 @@
+# Lenovo-Y40-70-BIOS
